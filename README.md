@@ -27,6 +27,10 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=4000&size=15&duration=10000&pause=100&color=F70000&background=000000&multiline=true&width=435&lines=%F0%9D%90%80+%F0%9D%90%A9%F0%9D%90%9A%F0%9D%90%AC%F0%9D%90%AC%F0%9D%90%A2%F0%9D%90%A8%F0%9D%90%A7%F0%9D%90%9A%F0%9D%90%AD%F0%9D%90%9E+%F0%9D%90%9F%F0%9D%90%AB%F0%9D%90%A8%F0%9D%90%A7%F0%9D%90%AD%F0%9D%90%9E%F0%9D%90%A7%F0%9D%90%9D+%F0%9D%90%9D%F0%9D%90%9E%F0%9D%90%AF%F0%9D%90%9E%F0%9D%90%A5%F0%9D%90%A8%F0%9D%90%A9%F0%9D%90%9E%F0%9D%90%AB+%F0%9D%90%9F%F0%9D%90%AB%F0%9D%90%A8%F0%9D%90%A6+%F0%9D%90%81%F0%9D%90%9A%F0%9D%90%A7%F0%9D%90%A0%F0%9D%90%A5%F0%9D%90%9A%F0%9D%90%9D%F0%9D%90%9E%F0%9D%90%AC%F0%9D%90%A1)](https://git.io/typing-svg)
 ![image](https://user-images.githubusercontent.com/114866115/206192676-57e9b031-5c3f-4504-808e-df0272861d8f.png)
+
+![image](https://user-images.githubusercontent.com/114866115/206201227-73f7ff39-54de-4322-bab4-9024822310c7.png)
+
+
 ![image](https://user-images.githubusercontent.com/114866115/206192676-57e9b031-5c3f-4504-808e-df0272861d8f.png)
 🙁𝐍𝐀𝐌𝐄 :- 𝐌𝐀𝐇𝐀𝐌𝐔𝐃 𝐇𝐀𝐒𝐀𝐍 𝐋𝐈𝐌𝐎𝐍
 ![image](https://user-images.githubusercontent.com/114866115/206192676-57e9b031-5c3f-4504-808e-df0272861d8f.png)
