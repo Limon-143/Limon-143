@@ -15,10 +15,6 @@
 ![image](https://user-images.githubusercontent.com/114866115/206192615-96572faf-69bf-4a82-acfe-87387c3e7bcd.png)
 ![image](https://user-images.githubusercontent.com/114866115/206193439-a2e4c708-3df1-4098-b9bb-623f7367726b.png)
 
-
-![Typing SVG](https://raw.githubusercontent.com/MRVIVEK-CODER/Decompiler/main/106824690-8dd73a00-66ad-11eb-89e2-53e13ac6f594.gif)
-
-
 ![image](https://user-images.githubusercontent.com/114866115/206192637-ff5d50f6-c58c-4017-8bfc-2a460abbc8bd.png)
 
 ![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=500&size=25&duration=4000&pause=1000&color=F72A2A&background=000000&center=true&vCenter=true&multiline=true&width=440&height=100&lines=%F0%9D%90%87%F0%9D%90%A2+%F0%9D%90%88%F0%9D%90%A6+%F0%9D%90%8C%F0%9D%90%80%F0%9D%90%87%F0%9D%90%80%F0%9D%90%8C%F0%9D%90%94%F0%9D%90%83+%F0%9D%90%87%F0%9D%90%80%F0%9D%90%92%F0%9D%90%80%F0%9D%90%8D+%F0%9D%90%8B%F0%9D%90%88%F0%9D%90%8C%F0%9D%90%8E%F0%9D%90%8D)
