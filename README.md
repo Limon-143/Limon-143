@@ -8,16 +8,21 @@
 
 [![Typing SVG](https://camo.githubusercontent.com/689d4d6b2c0702d582f60ce755551f6815bafbd1430e01a0454ef585c7cc3427/68747470733a2f2f656d6f6a692e646973636f72642e73742f656d6f6a69732f37363862313038642d323734662d346634342d613633342d3834373762313665666365372e676966)](https://git.io/typing-svg)
 
+![image](https://user-images.githubusercontent.com/114866115/206192586-2b668ab7-25b4-43ee-b939-4eb38b133221.png)
 
 
 ![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=30&pause=1000&color=0044FF&background=000000C0&width=435&lines=%F0%9D%90%87%F0%9D%90%9A%F0%9D%90%A5%F0%9D%90%A5%F0%9D%90%A8+%F0%9D%90%96%F0%9D%90%A8%F0%9D%90%AB%F0%9D%90%A5%F0%9D%90%9D+%F0%9D%90%88+%F0%9D%90%80%F0%9D%90%A6+%F0%9D%90%8B%F0%9D%90%A2%F0%9D%90%A6%F0%9D%90%A8%F0%9D%90%A7;%F0%9F%8C%BA%F0%9D%90%91%F0%9D%90%AC%F0%9D%90%A9%F0%9D%90%9E%F0%9D%90%9C%F0%9D%90%AD+%F0%9D%90%8B%F0%9D%90%A2%F0%9D%90%A6%F0%9D%90%A8%F0%9D%90%A7+%F0%9D%90%86%F0%9D%90%A2%F0%9D%90%AD%F0%9D%90%A1%F0%9D%90%9A%F0%9D%90%9B%F0%9F%8C%BA;%F0%9F%98%98%F0%9D%90%8F%F0%9D%90%A5%F0%9D%90%9E%F0%9D%90%9A%F0%9D%90%AC%F0%9D%90%9E+%F0%9D%90%85%F0%9D%90%A8%F0%9D%90%A5%F0%9D%90%A5%F0%9D%90%A8%F0%9D%90%B0+%F0%9D%90%8C%F0%9D%90%B2+%F0%9D%90%86%F0%9D%90%A2%F0%9D%90%AD%F0%9D%90%A1%F0%9D%90%9A%F0%9D%90%9B%F0%9F%98%98;%F0%9F%98%8D%F0%9D%90%93%F0%9D%90%A1%F0%9D%90%9A%F0%9D%90%A7%F0%9D%90%A4%F0%9D%90%AC+%F0%9D%90%8C%F0%9D%90%B2+%F0%9D%90%80%F0%9D%90%A5%F0%9D%90%A5+%F0%9D%90%85%F0%9D%90%AB%F0%9D%90%A2%F0%9D%90%9E%F0%9D%90%A7%F0%9D%90%9D%F0%9F%98%8D;%F0%9F%A5%80%F0%9D%90%8B%F0%9D%90%A8%F0%9D%90%AF%F0%9D%90%9E+%F0%9D%90%98%F0%9D%90%A8%F0%9D%90%AE+%F0%9D%90%85%F0%9D%90%AB%F0%9D%90%A8%F0%9D%90%A6+%F0%9D%90%81%F0%9D%90%9A%F0%9D%90%A7%F0%9D%90%A0%F0%9D%90%A5%F0%9D%90%9A%F0%9D%90%9D%F0%9D%90%9E%F0%9D%90%AC%F0%9D%90%A1%F0%9F%A5%80)
+![image](https://user-images.githubusercontent.com/114866115/206192615-96572faf-69bf-4a82-acfe-87387c3e7bcd.png)
 
 
 ![Typing SVG](https://raw.githubusercontent.com/MRVIVEK-CODER/Decompiler/main/106824690-8dd73a00-66ad-11eb-89e2-53e13ac6f594.gif)
+![image](https://user-images.githubusercontent.com/114866115/206192637-ff5d50f6-c58c-4017-8bfc-2a460abbc8bd.png)
 
 ![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=500&size=25&duration=4000&pause=1000&color=F72A2A&background=000000&center=true&vCenter=true&multiline=true&width=440&height=100&lines=%F0%9D%90%87%F0%9D%90%A2+%F0%9D%90%88%F0%9D%90%A6+%F0%9D%90%8C%F0%9D%90%80%F0%9D%90%87%F0%9D%90%80%F0%9D%90%8C%F0%9D%90%94%F0%9D%90%83+%F0%9D%90%87%F0%9D%90%80%F0%9D%90%92%F0%9D%90%80%F0%9D%90%8D+%F0%9D%90%8B%F0%9D%90%88%F0%9D%90%8C%F0%9D%90%8E%F0%9D%90%8D)
+![image](https://user-images.githubusercontent.com/114866115/206192664-9a974f96-47f6-4856-bf7d-79e51861944f.png)
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=4000&size=15&duration=10000&pause=100&color=F70000&background=000000&multiline=true&width=435&lines=%F0%9D%90%80+%F0%9D%90%A9%F0%9D%90%9A%F0%9D%90%AC%F0%9D%90%AC%F0%9D%90%A2%F0%9D%90%A8%F0%9D%90%A7%F0%9D%90%9A%F0%9D%90%AD%F0%9D%90%9E+%F0%9D%90%9F%F0%9D%90%AB%F0%9D%90%A8%F0%9D%90%A7%F0%9D%90%AD%F0%9D%90%9E%F0%9D%90%A7%F0%9D%90%9D+%F0%9D%90%9D%F0%9D%90%9E%F0%9D%90%AF%F0%9D%90%9E%F0%9D%90%A5%F0%9D%90%A8%F0%9D%90%A9%F0%9D%90%9E%F0%9D%90%AB+%F0%9D%90%9F%F0%9D%90%AB%F0%9D%90%A8%F0%9D%90%A6+%F0%9D%90%81%F0%9D%90%9A%F0%9D%90%A7%F0%9D%90%A0%F0%9D%90%A5%F0%9D%90%9A%F0%9D%90%9D%F0%9D%90%9E%F0%9D%90%AC%F0%9D%90%A1)](https://git.io/typing-svg)
+![image](https://user-images.githubusercontent.com/114866115/206192676-57e9b031-5c3f-4504-808e-df0272861d8f.png)
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=limon-143&label=Profile%20views&color=0e75b6&style=flat" alt="limon-143" /> </p>
 
