@@ -31,8 +31,7 @@
 ![image](https://user-images.githubusercontent.com/114866115/206201227-73f7ff39-54de-4322-bab4-9024822310c7.png)
 
 ![image](https://user-images.githubusercontent.com/114866115/206202222-3f208951-c3df-473f-9f41-c4a197faa010.png)
-[![Typing SVG](https://readme-typing-svg.demolab.com
-https://github.com/MRVIVEK-CODER/Decompiler/blob/main/106824690-8dd73a00-66ad-11eb-89e2-53e13ac6f594.gif)](https://git.io/typing-svg)
+
 
 ![image](https://user-images.githubusercontent.com/114866115/206192676-57e9b031-5c3f-4504-808e-df0272861d8f.png)
 🙁𝐍𝐀𝐌𝐄 :- 𝐌𝐀𝐇𝐀𝐌𝐔𝐃 𝐇𝐀𝐒𝐀𝐍 𝐋𝐈𝐌𝐎𝐍
